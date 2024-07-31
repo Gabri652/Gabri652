@@ -1,3 +1,3 @@
 kakashi
 ✇࿋✪𖣘
-![]<img src="https://media1.tenor.com/m/_KsnH9YVT5QAAAAC/kakashi.gif" alt="Kakashi GIF"/>
+![]<img src="https://media1.tenor.com/m/jNwKSlUPg8YAAAAC/hate-naruto.gif" alt="Hate Naruto GIF"/>
